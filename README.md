@@ -1,2 +1,2 @@
-# freshn.github.com
+[注释]:freshn.github.com
 IT'S BETTER TO KISS ME RATHER THAN READING ME.
